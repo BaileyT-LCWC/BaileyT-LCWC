@@ -1,0 +1,4 @@
+-  Hi, I’m @BaileyT-LCWC also known as Bailey multi-tasker
+-  I’m interested in gaming, excersining, walking, computing and watching tv
+- I’m currently learning Gateway to digital and further cyber and computer knowledge for my future career.
+ - My email is 30072903@lcwc.ac.uk
